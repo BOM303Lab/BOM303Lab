@@ -1,4 +1,4 @@
-# Welcome to Our GitHub Organization:smiley:
+# Welcome to Our GitHub Organization  :smiley:
 
 ## Organization Overview
 
